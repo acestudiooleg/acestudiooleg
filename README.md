@@ -1,4 +1,4 @@
-# Oleg Sudavnyi - Senior Software Engineer
+# Oleg - Senior Software Engineer
 
 
 ## Summary of Qualifications
